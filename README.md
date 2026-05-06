@@ -1,1 +1,0 @@
-# gestor-financeiro-2026
